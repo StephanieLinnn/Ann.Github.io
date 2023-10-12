@@ -8,6 +8,13 @@
   <img src="https://custom-images.strikinglycdn.com/res/hrscywv4p/image/upload/c_limit,fl_lossy,h_600,w_800,f_auto,q_auto/6854615/492705_919805.jpeg" alt="online">
   <p>靜下心覺察每一個小細節 無論是生活或是訓練</p>
   <hr>
+<p>背🐚(暫時版本)</p>
+<p>A.比讚上/下旋12x3<p>
+<p>B.肩胛節律啟動(上+下+前+後)12x3<p>
+<p>C.坐姿划船(單手)10x3</p>
+<p>D.坐姿划船(雙手)</p>
+<p>E.坐姿划船寬握</p>
+   <hr>
   <p>臀🍑</p>
   <p>|熱身啟動|</p>
   <p>  徒手分腿蹲10x3</p>
